@@ -12,4 +12,4 @@
 
 ![image](https://user-images.githubusercontent.com/117045771/198968403-8748a3bd-fadf-4349-963d-390443bb2a46.png)
 
-# Open an issue to buy
+# DM me on Discord to buy Xira#1068
